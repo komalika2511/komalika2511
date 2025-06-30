@@ -1,6 +1,6 @@
 - 👋 Hi, I’m komalika_saha
 - 👀 I’m interested in Coding 💻,Travelling 🧳✈️🚢,Drawing 🎨🖌️,watching movies📽️🍿.....
-- 🌱 I’m currently learning FULL STACK course
+
 - 💞️ I’m looking to collaborate on any projects.
 - 
 
